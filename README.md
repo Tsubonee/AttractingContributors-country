@@ -4,7 +4,7 @@ What's you favorite game and what game would you recommend ?
 
 # Your Favorite game, your recommendation
 1.
-2.
+2.resident evil 4
 3.
 4.
 5.
