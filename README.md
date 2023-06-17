@@ -43,3 +43,5 @@ Note：Include the person's name, and write "Anonymous" when anonymous
 ### Flowers do not bloom in an instant. They emerge from the earth as buds, form leaves, and grow. They grow, form buds, bloom, and bear fruit. Flowers do not bloom in an instant. A flower blooms in a single line.
    Sinmin Sakamura
    
+### To pursue a dream is the most important thing that you can't give up, and to keep losing to someone every minute and every second. 
+   Kafka Hibino
